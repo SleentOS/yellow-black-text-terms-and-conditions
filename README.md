@@ -1,6 +1,7 @@
 # Terms & Conditions
 
 Last Updated: 2024-08-26
+
 Welcome to Yellow Black! By downloading or using our app, you agree to comply with and be bound by the following terms and conditions.
 
 ## Usage of the App
